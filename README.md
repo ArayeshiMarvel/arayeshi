@@ -1,2 +1,2 @@
 # arayeshi
-[Arayeshimarvel](https://arayeshimarvel.com)
+[آرایشی مارول](https://arayeshimarvel.com)
